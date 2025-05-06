@@ -1,0 +1,1 @@
+# inft3800-assignment-2-applying-for-an-innovation-patent-solved
